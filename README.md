@@ -12,6 +12,10 @@ Karena suatu saat nanti ketika botnya sekarat, anda tidak kebingungan ditengah j
 WROKS 100 %
 #TEAM TERMUX BOTS #ZULKIFLI MOKOAGOW
 
+<img alt="Sample.jpg" src= "https://i.ibb.co.com/TrkwwTf/Screenshot-2024-10-09-14-21-50-817-jp-naver-line-android.jpg">
+<p>
+
+
 THANKS TO ALL MASTAH
 
 # Creator bots 1
